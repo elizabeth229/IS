@@ -1,1 +1,1 @@
-# IS
+# School class IS
